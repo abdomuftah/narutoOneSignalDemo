@@ -12,7 +12,7 @@ check [oneSignal](https://onesignal.com) to signup and follow me in the tutorial
 
 ## video tutorial 
 
-** Comming Soon **
+[![#Scar_Naruto اشعارات بشكل ومزايا جديدة](https://img.youtube.com/vi/aDI3hQVgkHQ/0.jpg)](https://www.youtube.com/watch?v=aDI3hQVgkHQ)
 
 ##
 
@@ -30,7 +30,7 @@ check [oneSignal](https://onesignal.com) to signup and follow me in the tutorial
 
 ## فيديو الشرح :
 
-** Comming Soon **
+[![#Scar_Naruto اشعارات بشكل ومزايا جديدة](https://img.youtube.com/vi/aDI3hQVgkHQ/0.jpg)](https://www.youtube.com/watch?v=aDI3hQVgkHQ)
 
 ##
 
